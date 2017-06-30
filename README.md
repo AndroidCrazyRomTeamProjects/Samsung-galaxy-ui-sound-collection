@@ -1,0 +1,1 @@
+# note-4-port-rom-for-lenovo-vibe-x2-stuffs
